@@ -5,6 +5,7 @@
 - 📫 How to reach me theozzie@icloud.com...
 
 Will Update this info Soon  :-)
+Gotta get a feel for site and see how I can expand and Grow.
 
 <!---
 TaylorMadeT/TaylorMadeT is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
